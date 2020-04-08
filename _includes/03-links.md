@@ -1,1 +1,1 @@
-[EarvinGallardo](http://earvingallardo.com)
+[Earvin Gallardo](http://earvingallardo.com)
